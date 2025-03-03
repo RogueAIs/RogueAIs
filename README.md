@@ -6,4 +6,4 @@
 
 <p align="center">🌙 Doing something 】⛔ Won't be talkative【 💬 Ontab & chatty
 
-<p align="center">Main fandoms: Squid Game, Mouthwashing & DC.
+<p align="center">Main fandoms: Squid Game, Mouthwashing, RDR & DC.
