@@ -1,4 +1,4 @@
-<p align="center">Cuddle anytime. Whisper, usually innatentive to chat.
+<p align="center">Cuddle anytime. Whisper or friend, usually innatentive to/disabled local chat.
 
 <p align="center">🌙 Doing something 】⛔ Won't be talkative【 💬 Ontab & chatty
 
