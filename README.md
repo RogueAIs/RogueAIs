@@ -23,7 +23,7 @@ Cuddle anytime. Whisper or friend, often innatentive to/disabled local chat.
 ### About ![](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/3b62ee6ef865cc14-09/s75x75_c1/2964a2913e9e8bf5362178bd3a80977538453df2.gifv) 
 <a href="https://lastfriday.straw.page/about" target="_blank">**General info**</a>**.** **Be mindful of DNI and Warning.**
 
-<small>Usually very talkative, I'll match your energy and keep up convo so never be afraid to approach. I love ranting and duo activities btw...</small>
+<small>Usually rant a lot, I'll match your energy and keep up convo so never be afraid to approach. I love duo activities btw...</small>
   </p>
 </div>
 
