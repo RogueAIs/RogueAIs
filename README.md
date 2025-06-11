@@ -1,16 +1,25 @@
-## Hi there 👋
+<div align="center">
+ 
+  [![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=600&lines=It%27s+filthy%2C+disgusting%2C+so+ugly%2C+I%27m+sure%2E;I%27m+ugly%2C+disgusting%2C+and+filthy+for+sure%2E)](https://git.io/typing-svg) 
+</div>
 
-<!--
-**RogueAIs/RogueAIs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  <img align="left" width="40%" src="https://pbs.twimg.com/media/GrxWUzqW8AA4J7H?format=jpg&name=large">
 
-Here are some ideas to get you started:
+ᅟ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Info.
+
+![](https://64.media.tumblr.com/c322404670e95981b8bf68d3d2c6ed4b/30a5bba12daef9d3-53/s500x750/97e8bf715f3c2ab4a5c7751d5b8caa50d7c5b63b.gifv)
+
+
+**Interaction 15+ and fandom exclusive.**
+
+  <small>
+Cuddle anytime. Whisper or friend, usually innatentive to/disabled local chat.
+
+🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
+</small>
+
+  </p>
+</div>
