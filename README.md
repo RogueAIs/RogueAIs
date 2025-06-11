@@ -7,7 +7,7 @@
    
 ᅟ
 
-  <img align="left" width="40%" src="https://pbs.twimg.com/media/GrxWUzqW8AA4J7H?format=jpg&name=large">
+  <img align="left" width="45%" src="https://pbs.twimg.com/media/GrxWUzqW8AA4J7H?format=jpg&name=large">
 
 ### BYI ![](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/3b62ee6ef865cc14-09/s75x75_c1/2964a2913e9e8bf5362178bd3a80977538453df2.gifv) 
 
