@@ -1,7 +1,6 @@
 <div align="center">
 
 [![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=800&color=82A3CF&center=true&vCenter=true&width=600&lines=Send+me+the+pillow+.+.+.;The+one+that+you+dream+on+.+.+.;And+I%27ll+send+you+mine+.)](https://git.io/typing-svg)
-
  <img align="left" width="100%" src="https://64.media.tumblr.com/30632f532d983538fcf496698ea15ad2/c65e6dbd388d2a43-55/s2048x3072/d78baec031cebb131ca3aa1585069baf040d8d83.pnj">
 
    
