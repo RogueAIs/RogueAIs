@@ -20,10 +20,6 @@ Always cuddle. Whisper or friend, innatentive to/disabled local chat.
 🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
 </small>
 
-   
-ᅟ
-
-![](https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/930420250802f402-0b/s400x600/6cd047b46c548d22fc08a1110e3eb30aaeadcbb4.gifv)
 ### About ![](https://64.media.tumblr.com/934ae69df1af062542cff66c4bb11ccd/2c26ab6ddd76e331-d2/s75x75_c1/c05757e7cebc86270af8c8b1be59bcde317879f1.gifv) 
 
 <a href="https://lastfriday.straw.page/about" target="_blank">**General info**</a>**.** **Be mindful of DNI and Warning.**
