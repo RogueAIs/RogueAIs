@@ -1,15 +1,16 @@
 <div align="center">
 
-  [![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F70000&center=true&vCenter=true&width=600&lines=It%27s+filthy%2C+disgusting%2C+so+ugly%2C+I%27m+sure%2E;I%27m+ugly%2C+disgusting%2C+and+filthy+for+sure%2E)](https://git.io/typing-svg)
+[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=600&color=9AC7D6&center=true&vCenter=true&width=600&lines=Send+me+the+pillow+.+.+.;The+one+that+you+dream+on+.+.+.;And+I%27ll+send+you+mine+.+.+.)](https://git.io/typing-svg)
 
- <img align="left" width="100%" src="https://64.media.tumblr.com/e8ae7c9d327434214005f2759e10d8c5/08b6024acb610772-57/s400x600/ea288684465fe91c5727dc6d22d5b6168070951d.gifv">
+ <img align="left" width="100%" src="https://64.media.tumblr.com/9635c1189d25d9dd08fe637bdb237cc7/e5cde90135c8fe90-51/s1280x1920/cafd9779ab054b28b055e4f98898ab4c34bd3d53.pnj">
 
    
 ᅟ
 
-  <img align="left" width="42%" src="https://pbs.twimg.com/media/GrxWUzqW8AA4J7H?format=jpg&name=large">
 
-### BYI ![](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/3b62ee6ef865cc14-09/s75x75_c1/2964a2913e9e8bf5362178bd3a80977538453df2.gifv) 
+<img align="left" width="50%" src="https://64.media.tumblr.com/cd900a1d3e97c4e7a5c03e3b03df824a/ba80043c3a981531-5b/s2048x3072/b747b999b11c717748e7c1db8e59066cb82a9234.pnj">
+
+### BYI ![](https://64.media.tumblr.com/3452f40ef938bbb3847e44ecc4a946e3/e747c25959932209-01/s75x75_c1/8e8bbe785de45b67cd72e8c8ceeb88aceccacb4a.gifv) 
 
 **Interaction 15+ and fandom exclusive.**
 
@@ -19,8 +20,12 @@ Always cuddle. Whisper or friend, innatentive to/disabled local chat.
 🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
 </small>
 
-![](https://64.media.tumblr.com/c322404670e95981b8bf68d3d2c6ed4b/30a5bba12daef9d3-53/s500x750/97e8bf715f3c2ab4a5c7751d5b8caa50d7c5b63b.gifv)
-### About ![](https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/3b62ee6ef865cc14-09/s75x75_c1/2964a2913e9e8bf5362178bd3a80977538453df2.gifv) 
+   
+ᅟ
+
+![](https://64.media.tumblr.com/225fbdb4e0a4c95f2ba59153dfa0adc8/930420250802f402-0b/s400x600/6cd047b46c548d22fc08a1110e3eb30aaeadcbb4.gifv)
+### About ![](https://64.media.tumblr.com/934ae69df1af062542cff66c4bb11ccd/2c26ab6ddd76e331-d2/s75x75_c1/c05757e7cebc86270af8c8b1be59bcde317879f1.gifv) 
+
 <a href="https://lastfriday.straw.page/about" target="_blank">**General info**</a>**.** **Be mindful of DNI and Warning.**
 
 <small>I'll take a bit to adapt to you then rant a lot. I also love duo activities btw oooo you wanna do stuff together so bad...</small>
@@ -31,6 +36,6 @@ Always cuddle. Whisper or friend, innatentive to/disabled local chat.
 
 <div align="center">
 
- <img align="left" width="100%" src="https://64.media.tumblr.com/e8ae7c9d327434214005f2759e10d8c5/08b6024acb610772-57/s400x600/ea288684465fe91c5727dc6d22d5b6168070951d.gifv">
+ <img align="left" width="100%" src="https://64.media.tumblr.com/30632f532d983538fcf496698ea15ad2/c65e6dbd388d2a43-55/s2048x3072/d78baec031cebb131ca3aa1585069baf040d8d83.pnj">
 
 </div>
