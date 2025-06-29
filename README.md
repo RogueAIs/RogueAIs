@@ -8,7 +8,7 @@
 ᅟ
 
 
-<img align="left" width="50%" src="https://64.media.tumblr.com/cd900a1d3e97c4e7a5c03e3b03df824a/ba80043c3a981531-5b/s2048x3072/b747b999b11c717748e7c1db8e59066cb82a9234.pnj">
+<img align="left" width="40%" src="https://64.media.tumblr.com/cd900a1d3e97c4e7a5c03e3b03df824a/ba80043c3a981531-5b/s2048x3072/b747b999b11c717748e7c1db8e59066cb82a9234.pnj">
 
 ### BYI ![](https://64.media.tumblr.com/3452f40ef938bbb3847e44ecc4a946e3/e747c25959932209-01/s75x75_c1/8e8bbe785de45b67cd72e8c8ceeb88aceccacb4a.gifv) 
 
