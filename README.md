@@ -9,7 +9,19 @@
 
 <img align="left" width="40%" src="https://pbs.twimg.com/media/Glf8xk1bwAELKtM?format=jpg&name=large">
 
-### BYI ![](https://64.media.tumblr.com/3452f40ef938bbb3847e44ecc4a946e3/e747c25959932209-01/s75x75_c1/8e8bbe785de45b67cd72e8c8ceeb88aceccacb4a.gifv) 
+   
+ᅟ
+
+   
+ᅟ
+
+   
+ᅟ
+
+   
+ᅟ
+
+### Info ![](https://64.media.tumblr.com/3452f40ef938bbb3847e44ecc4a946e3/e747c25959932209-01/s75x75_c1/8e8bbe785de45b67cd72e8c8ceeb88aceccacb4a.gifv) 
 
 **<a href="https://lastfriday.straw.page/about" target="_blank">General info</a>. Be mindful of DNI and Warning.**
 
