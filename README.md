@@ -31,6 +31,8 @@ Whisper or friend, innatentive to/disabled local chat.
 
 🌙 Doing something | ⛔ Won't be talkative | 💬 Ontab & chatty
 </small>
+
+<small>Often on VC in <a href="https://discord.gg/uS3rrKZxX7" target="_blank">Swatch's UT/DR server</a>!</small>
 ᅟ
 
 <div align="center">
