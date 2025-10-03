@@ -1,6 +1,6 @@
 <div align="center">
 
-[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=800&color=e9ed91&center=true&vCenter=true&width=600&lines=Send+me+the+pillow+.+.+.;The+one+that+you+dream+on+.+.+.;And+I%27ll+send+you+mine+.)](https://git.io/typing-svg)
+[![](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=300&color=ff0000&center=true&vCenter=true&width=600&lines=Need+you+.+.+.;Dream+you+.+.+.;Find+you+.+.+.;Taste+you+.+.+.)](https://git.io/typing-svg)
  <img align="left" width="100%" src="https://64.media.tumblr.com/aae510c798847a00b6b345b9bbaca505/17e56c69ffb64f87-13/s2048x3072/709eb67adc2150a01f7da0af6e0f30e5de580d92.pnj">
 
 
