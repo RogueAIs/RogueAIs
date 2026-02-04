@@ -27,4 +27,4 @@ Whisper. Mostly offtab + local chat disabled.
     </td>
   </tr>
 </table>
-<img src="https://64.media.tumblr.com/0fa303a4add29eab0fab066dda88b422/bc307bdfdf5017fe-b0/s2048x3072/37c271463c6357fe15fdb68f81b25374f91c4302.pnj">
+<img src="https://64.media.tumblr.com/18dbd50bcba1fc1f4817451897bd16e3/667d970b66dfc95e-86/s1280x1920/8e9d60c05d7ef8e4605c86c2cac6081106411e5f.pnj">
