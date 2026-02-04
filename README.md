@@ -1,7 +1,7 @@
 <table border="0">
   <tr align="center">
     <td>
-      <img src="https://64.media.tumblr.com/82f5585bfd6383a73f8a1097617b348e/4a4bd7abb37f47f2-2c/s1280x1920/68cc587fee903bfdc1d96720cd40e341eb421a0e.pnj" width="260" alt="Left GIF">
+      <img src="https://64.media.tumblr.com/8d675939ceda0c804205ad4123554ecf/26c87b1ec78998e3-bf/s1280x1920/e5299d33727674e8eb26a6f146e2ea918c7acc8f.pnj" width="260" alt="Left">
     </td>
     <td style="vertical-align: middle;">
       <p><b>
@@ -23,8 +23,7 @@ Whisper. Mostly offtab + local chat disabled.
 </div></b></p>
     </td>
     <td>
-      <img src="https://64.media.tumblr.com/c6c972b90e39a6b547327e38155a8840/4a4bd7abb37f47f2-e2/s1280x1920/d6ab2d59457952a73c086002ef808d31faa4a5a7.pnj" width="220" alt="Right GIF">
+      <img src="https://64.media.tumblr.com/21ad53961da64269314159e33ab6d765/26c87b1ec78998e3-a5/s1280x1920/fb70b9dc70c95df32e5329e3290d4db48d92518c.pnj" width="260" alt="Right">
     </td>
   </tr>
 </table>
-<img src="https://64.media.tumblr.com/18dbd50bcba1fc1f4817451897bd16e3/667d970b66dfc95e-86/s1280x1920/8e9d60c05d7ef8e4605c86c2cac6081106411e5f.pnj">
