@@ -10,7 +10,7 @@
   <img src="https://readme-typing-svg.herokuapp.com?font=Italianno&size=80&duration=1&repeat=false&color=FFFFFF&center=true&vCenter=true&width=400&height=77&lines=Info" alt="Info" />
 </p>
 
-<a href="chillingdevotion.straw.page/me" target="_blank">General intro</a>. Be mindful of DNI and Warning.
+<a href="https://chillingdevotion.straw.page/me" target="_blank">General intro</a>. Be mindful of DNI and Warning.
 
 Approach and cuddle anytime. I'll take a bit to adapt to you, then rant a lot. 
 
